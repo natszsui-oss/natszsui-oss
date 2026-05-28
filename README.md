@@ -1,2 +1,2 @@
 
-<img width="374" height="306" alt="image" src="https://github.com/user-attachments/assets/9e5cbd3d-dabb-4411-a795-517440d1db32" />
+<img width="498" height="498" alt="gon-strong" src="https://github.com/user-attachments/assets/a5fccb38-f9ad-4248-9794-8a80583d6a1d" />
